@@ -1,0 +1,2 @@
+# galerias
+Mi historia
